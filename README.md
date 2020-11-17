@@ -1,2 +1,1 @@
 # LEEJINHEE
-Cheongju University Student
